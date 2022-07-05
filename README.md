@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JamesRambo007
 - 👀 I’m interested in programimg
-- 🌱 I’m currently learning nothing for now
+- 🌱 I’m currently learning nothing for now lol
 - 💞️ I’m looking to collaborate on projects to beginners
 - 📫 How to reach me @orafafranco on Instagram
 
